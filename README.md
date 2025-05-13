@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on world peace.
 - 📫 The best way to reach me is via Teams.
 - 😄 Pronouns: she and her.
-- ⚡ Fun fact: A @ is called a commat.
+- ⚡ Fun fact: Pottery is the first synthetic material ever created by humans.
 
 <!---
 CyndyCreech/CyndyCreech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
