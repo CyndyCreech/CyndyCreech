@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CyndyCreech
 - 👀 I’m interested in removing obstacles.
-- 🌱 I’m currently learning code from scratch.
+- 🌱 I’m currently learning everything because I heard there were cookies here.
 - 💞️ I’m looking to collaborate on world peace.
 - 📫 The best way to reach me is via Teams.
 - 😄 Pronouns: she and her.
